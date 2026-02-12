@@ -1,1 +1,1 @@
-learning acticities and plottings
+learning activities and plottings
